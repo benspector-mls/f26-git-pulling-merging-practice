@@ -1,3 +1,3 @@
 # f26-git-pulling-merging-practice
 
-i like to eat
+My code is superior. Get on my level
